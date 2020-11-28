@@ -1,0 +1,1 @@
+first take and put a cup of water and boil it for 2 min then add 1 spoon sugar and  tea leaves to it and boild it for 2 mins know remove tea levaes and the tea is done
